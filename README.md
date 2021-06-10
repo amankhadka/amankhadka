@@ -1,0 +1,2 @@
+Aman is a system and network administrator, a lecturer and an instructor focused on ICT with deliberate work experience of more than 8 years. He is directly involved in constructing backbone network as information superhighway for a government organization and developed relevant IT products. Mr. Khadka has developed ICT syllabus for different level staffs and has instructed many trainings in accordance. He has adequate passion for ICT academics and hence provide lecture in many computer science and IT courses with supervision in many CSIT projects.
+--->
